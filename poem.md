@@ -1,4 +1,4 @@
-Roses are red,
-Violets are blue.
+Red pills are red,
+Blue pills are blue.
 ALL of my base
 are belong to you.
